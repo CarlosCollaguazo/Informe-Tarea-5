@@ -12,7 +12,7 @@ Objetivos Específicos:
 
 Capítulo IX
 
-![image](https://user-images.githubusercontent.com/105675868/177665845-0649cb9e-840d-4b18-9a71-808fc6de34a4.png)
+![image](https://user-images.githubusercontent.com/105675868/177666485-b2f1adc1-01a5-4814-9cfb-cd7386a7a056.png)
 
 Capítulo X
 
